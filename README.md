@@ -8,3 +8,5 @@ Focus only on what you want and where you want to go. How do I reach there. I ha
 
 I have to find a way to reach all my goals and I have to reach all my goals by Dec1st 2024. I love my life and I love my family and I forgive her.
 
+Give 200% yourself so that you reach your goals. I have to reach my goals By Dec 1st 2024.
+
