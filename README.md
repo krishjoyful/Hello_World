@@ -6,5 +6,5 @@ Focus 200% with all your body, with your mind, with your senses, with your hear,
 
 Focus only on what you want and where you want to go. How do I reach there. I have to be there by Dec 1st 2024.
 
-
+I have to find a way to reach all my goals and I have to reach all my goals by Dec1st 2024. I love my life and I love my family and I forgive her.
 
